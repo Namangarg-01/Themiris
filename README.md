@@ -1,6 +1,6 @@
 # Naman Garg 
 
-### Machine Learning Engineer | Data Science Enthusiast | Third Year Student 
+### Gen AI Enthusiast | Third Year Student 
 
 ---
 
